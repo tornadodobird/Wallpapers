@@ -1,0 +1,1 @@
+I sure hope these pictures aren't copyrighted by Samsung. If you are a Samsung employee or you know that they are copyrighted and shouldn't be distributed, let me know and I delete them from this repository.
